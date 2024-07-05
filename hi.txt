@@ -1,0 +1,1 @@
+pandoc trip2.md --filter filter.js --css style.css -s -o index.html
