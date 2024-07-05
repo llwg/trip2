@@ -1022,7 +1022,7 @@ tbh there was not much i saw. i think i just walked around a street or two and w
 
 drying finished. took out laundry. was gonna wipe down the folding table with one of my wet wipes but i couldnt find the wet wipes in my backpack so i was convinced that i accidentlly left them at matsuya when i took them out to wipe down table. however while i was mid-folding i found them in my backpack. oops!.
 
-i packed all my laundry and next on to-do list was to buy binocular. why binocular? newjeans concert at tokyo dome large venue, lowest-tier seats, so expect binocular would potentially be good option in order to enhance sight. when i looked up "[binoculars recommendations](双眼鏡おすすめ)" in japanese the first or one of the pages was yodobashi camera which was [imprinted onto my brain from seeing a random 80s commercial on youtube](新宿西口駅の前) so i was gonna go to shinjuku yodobashi but i looked it up and apparently akihabara yodobashi is bigger so decided to go there instead.
+i packed all my laundry and next on to-do list was to buy binocular. why binocular? newjeans concert at tokyo dome large venue, lowest-tier seats, so expect binocular would potentially be good option in order to enhance sight. when i looked up "[binoculars recommendations](双眼鏡おすすめ)" in japanese the first or one of the pages was yodobashi camera which was imprinted onto my brain from seeing a random 80s commercial on youtube so i was gonna go to shinjuku yodobashi but i looked it up and apparently akihabara yodobashi is bigger so decided to go there instead.
 
 akihabara yodobashi was only like 16 mins walking google maps said, from the coin laundry i was at. so i simply walked. and not too long into walk i could literally see the giant yodobashi camera sign from the street
 
