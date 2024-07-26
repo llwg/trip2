@@ -1233,6 +1233,11 @@ and eventually concert started. recording, photography prohibited though some pp
 
 the concert was umm 2 and a half hours i believe? and idrk how else to describe it except that it happened. tbh the crowd felt kinda dead? where i was sitting? perhaps. though went noticeably crazy in some moments e.g. guest (yoasobi) performance, and "aoi sangoshou" song performance.
 
+::: aside
+# aside: the prompter things was with powerpoint I think
+idk if tonight was when i first saw this. i think it was. but i remember when i was looking through binoculars i can see the um like screens they have that have lyrics and scripts and stuff for performers to look at and stuff. and i saw that they were using powerpoint im pretty sure. like at one point they were in the nonfullscreen and it looked exactly like powerpoint. the layout and colors and stuff. im pretty sure it was powerpoint. very cool.
+:::
+
 eventually concert ended and left with very umm.. empty? post-concert depression? life depression? sort of feelings, like desire to go live in mountains feeling? placed too much importance on something and realize life is still same feeling? not really sure feelings, but probably depressing feelings.
 
 however i got to go through the "strong winds up to 45mph" door exiting tokyo dome (doorway with strong winds up to 45 mph) which was fun. and then i followed the giant crowd out of tokyo dome but had to find my way back to get my primary bag from coin locker.
